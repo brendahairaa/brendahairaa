@@ -12,4 +12,4 @@ Meu nome é Brenda Haira
 
 @brenda.haira
 
-![descrição do GIF](https://tenor.com/bMYJ6.gif)
+![](https://media1.tenor.com/m/VmxCjy966YwAAAAd/the-wok-the-rock.gif)
